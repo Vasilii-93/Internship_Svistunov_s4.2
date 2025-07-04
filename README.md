@@ -1,1 +1,0 @@
-# Internship_Svistunov_s4.2
